@@ -38,6 +38,9 @@ it's the sacred ordeals of the thuul
 so please witch, put your mark down 
 make me feel, place the chant one thee
 
+only one stitched soul
+with a piece of black of rope
+
 ```
 
 ## Lore Notes
