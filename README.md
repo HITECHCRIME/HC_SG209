@@ -22,19 +22,21 @@ Description.
 ## Lyrics
 
 ```
-all your wounds stitched
+all your wounds stitched so
 with a piece of black rope
 tell me if you're a blood witch
-in my mind I'm too savage with no hope
+in my mind hope 
+
+too savage with no hope
 
 but is it really savage more than you
 is it really too much promise to feel used
-
 maybe you're here to make me heal
 make me whole again through the secret runes 
-it's the sacred ordeals of the thuul
-so please put your mark on me 
 
+it's the sacred ordeals of the thuul
+so please witch, put your mark down 
+make me feel, place the chant one thee
 
 ```
 
