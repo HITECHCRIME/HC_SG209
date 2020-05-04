@@ -24,7 +24,7 @@ Description.
 ```
 all your wounds stitched so
 with a piece of black rope
-tell me if you're a blood witch
+tell me you're a blood witch
 in my mind hope 
 
 too savage with no hope
@@ -35,7 +35,8 @@ maybe you're here to make me heal
 make me whole again through the secret runes 
 
 it's the sacred ordeals of the thuul
-so please witch, put your mark down 
+so please witch, put your mark down one me
+
 make me feel, place the chant one thee
 
 only one stitched soul
